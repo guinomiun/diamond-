@@ -1,1 +1,1 @@
-# diamond-
+# Clash-of-Clans-remake
